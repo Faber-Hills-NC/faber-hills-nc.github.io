@@ -1,6 +1,7 @@
-# Welcome to Faber Hills NC
+### Welcome to Faber Hills NC Hub
 
-## Upcoming Activities
+#### Upcoming Activities
+In the comming months, we are excited to host the following activities at our Fabel Hills NC Hub. 
 
 | Date & Time              | Activity | Location |
 | :---------------- | :------ | :----: |
@@ -11,4 +12,4 @@
 | 2 Dev 2023, 10am - 11.30am       | FOC Talk: Estate planning, to include will writing, LPA and AMD | Faber Hills NC Hub |
 
 
-
+To get updated to the upcoming Faber Hills NC activites, please join our [Telegram Group](https://t.me/+hV5_Km8F86UwZDQ1) and like our [Fackbook Account](https://www.facebook.com/FaberHillsFriends).
