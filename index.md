@@ -39,7 +39,7 @@ In the coming months, we have a lineup of fantastic events and workshops planned
   | 22 Nov 2023 | 9.30 AM - 11.30AM | Balik Kampung Module 2: Keep My Brain Active | TBC |  
   | 23 Nov 2023 | 9 AM | Rummy-O | TBC |  
   | 24 Nov 2023 | 7.30 PM - 9 PM | Balloon Sculpting Workshop | on-site registration |  
-  | 25 Nov 2023 | 9 AM - 11 AM | PassionArts - Mixed Media Canvas Ar | TBC |  
+  | 25 Nov 2023 | 9 AM - 11 AM | PassionArts - Mixed Media Canvas Art | TBC |  
   | 26 Nov 2023 | 10 24AM - 11.30 AM | Digital Photography for Beginners | TBC |  
   | 27 Nov 2023 | 9 AM | Rummy-O | TBC |  
   | 28 Nov 2023 | 9.30 AM - 11.30 AM | SDO Digital workshop (Workshop 4 - WhatsApp) | click [SDO Talks Registration Form](https://form.gov.sg/6513f9942c8bd900127b82d4) or call 67761670 
