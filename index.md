@@ -1,7 +1,7 @@
 ### Welcome to Faber Hills NC Hub
-
+![](images/hub.jpeg)
 #### Upcoming Activities
-In the coming months, we have a lineup of fantastic events and workshops planned at our Faber Hills NC Hub, located in the [Faber Hills Playground](https://maps.app.goo.gl/hRiFhogMCZRWxcpX9). Stay tuned for more details and get ready to join us for some unforgettable experiences!
+From October to December 2023, the Faber Hills Neighbourhood Committee has curated many fantastic activities and workshops for you at Our Residents' Hub, located in the [Faber Hills Playground](https://maps.app.goo.gl/hRiFhogMCZRWxcpX9). Join in the activities for unforgettable experiences!
 
 | Date        | Time        | Events | Registration | 
 | :------------ | :------------ | :------ | :---- |
@@ -12,7 +12,7 @@ In the coming months, we have a lineup of fantastic events and workshops planned
   | 20 Oct 2023 | 9 AM - 10 AM | Tree planting by Nparks | click [here](https://form.gov.sg/650d54a7020dec0012f43961) to register |  
   | 21 Oct 2023 | 1 PM - 3 PM | Investment Know-how Workshop | click [here](https://share.hsforms.com/1EF60dtE7Ryy-2cuOi4CezAd9t3s) to register |  
   | 21 Oct 2023 | 3 PM - 4.30 PM | PassionArts - Nagomi Art | TBC |  
-  | 22 Oct 2023 | 10 AM - 11.30 AM | Digital Photography for Beginners | TBC |  
+  | 22 Oct 2023 | 10 AM - 11.30 AM | Digital Photography for Beginners | walk-in |  
   | 23 Oct 2023 | 9 AM | Rummy-O | walk-in|  
   | 25 Oct 2023 | 8 AM - 9 AM | Keep Fit Marilyn | walk-in |  
   | 26 Oct 2023 | 9 AM | Rummy-O | walk-in|  
@@ -27,7 +27,7 @@ In the coming months, we have a lineup of fantastic events and workshops planned
   | 8 Nov 2023 | 9.30 AM - 11.30AM | Balik Kampung Module 1.5: Stay Connected | TBC |  
   | 9 Nov 2023 | 9 AM | Rummy-O | walk-in|  
   | 11 Nov 2023 | 5 PM - 6 PM | Rubix Cube Beginner Class | walk-in |  
-  | 12 Nov 2023 | 10 AM - 11.30 AM | Digital Photography for Beginners | TBC |  
+  | 12 Nov 2023 | 10 AM - 11.30 AM | Digital Photography for Beginners | walk-in |  
   | 13 Nov 2023 | 9 AM | Rummy-O | walk-in|  
   | 14 Nov 2023 | 9.30 AM - 11.30 AM | SDO Digital workshop (Workshop 3 - Singpass) | click [SDO Talks Registration Form](https://form.gov.sg/6513f9942c8bd900127b82d4) or call 67761670 
   | 15 Nov 2023 | 8 AM - 9 AM | Keep Fit Marilyn | walk-in |  
@@ -40,7 +40,7 @@ In the coming months, we have a lineup of fantastic events and workshops planned
   | 23 Nov 2023 | 9 AM | Rummy-O | walk-in|  
   | 24 Nov 2023 | 7.30 PM - 9 PM | Balloon Sculpting Workshop | TBC |  
   | 25 Nov 2023 | 9 AM - 11 AM | PassionArts - Mixed Media Canvas Art | TBC |  
-  | 26 Nov 2023 | 10 24AM - 11.30 AM | Digital Photography for Beginners | TBC |  
+  | 26 Nov 2023 | 10 24AM - 11.30 AM | Digital Photography for Beginners | walk-in |  
   | 27 Nov 2023 | 9 AM | Rummy-O | walk-in|  
   | 28 Nov 2023 | 9.30 AM - 11.30 AM | SDO Digital workshop (Workshop 4 - WhatsApp) | click [SDO Talks Registration Form](https://form.gov.sg/6513f9942c8bd900127b82d4) or call 67761670 
   | 29 Nov 2023 | 8 AM - 9 AM | Keep Fit Marilyn | walk-in |  
@@ -48,18 +48,18 @@ In the coming months, we have a lineup of fantastic events and workshops planned
   | 30 Nov 2023 | 9 AM | Rummy-O | walk-in|  
   | 1 Dec 2023 | 7.30 PM - 9 PM | Balloon Sculpting Workshop | TBC |  
   | 2 Dec 2023 | 10 AM - 11.30 AM | Estate planning workshop | TBC |  
-  | 3 Dec 2023 | 10 AM - 11.30 AM | Digital Photography for Beginners | TBC |  
+  | 3 Dec 2023 | 10 AM - 11.30 AM | Digital Photography for Beginners | walk-in |  
   | 4 DEC 2023 | 9 AM | Rummy-O | walk-in|  
   | 6 Dec 2023 | 8 AM - 9 AM | Keep Fit Marilyn | walk-in |  
   | 6 Dec 2023 | 9.30 AM - 11.30AM | Balik Kampung Module 4: I can do this | TBC |  
   | 7 DEC 2023 | 9 AM | Rummy-O | walk-in|  
-  | 10 Dec 2023 | 10 AM - 11.30 AM | Digital Photography for Beginners | TBC |  
+  | 10 Dec 2023 | 10 AM - 11.30 AM | Digital Photography for Beginners | walk-in |  
   | 11 DEC 2023 | 9 AM | Rummy-O | walk-in|  
   | 12 Dec 2023 | 10 AM - 11.30 AM | SDO Digital workshop (Workshop 5 - E-Payment) | click [SDO Talks Registration Form](https://form.gov.sg/6513f9942c8bd900127b82d4) or call 67761670 
   | 13 Dec 2023 | 8 AM - 9 AM | Keep Fit Marilyn | walk-in |  
   | 13 Dec 2023 | 9.30 AM - 11.30AM | Balik Kampung Module 5: How am I feeling today | TBC |  
   | 14 DEC 2023 | 9 AM | Rummy-O | walk-in|  
-  | 17 Dec 2023 | 10 AM - 11.30 AM | Digital Photography for Beginners | TBC |  
+  | 17 Dec 2023 | 10 AM - 11.30 AM | Digital Photography for Beginners | walk-in |  
   | 18 DEC 2023 | 9 AM | Rummy-O | walk-in|  
   | 20 Dec 2023 | 8 AM - 9 AM | Keep Fit Marilyn | walk-in |  
   | 20 Dec 2023 | 9.30 AM - 11.30AM | Senior Health Curriculum - A4 Let's be strong together | TBC |  
