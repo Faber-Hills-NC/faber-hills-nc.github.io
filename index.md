@@ -16,6 +16,7 @@ From October to December 2023, the Faber Hills Neighbourhood Committee has curat
 | Oct 26, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
 | Oct 28, 2023 (Sat), 6 PM - 9.30 PM | Faber Hills NC - Halloween 2023 | [Pre-register](https://form.gov.sg/651938f71361df0012924666) |
 | Oct 31, 2023 (Tue), 9.30 AM - 11.30 AM | SDO Digital workshop (Workshop 2 - Cybersecurity) | Walk in or [pre-register](https://form.gov.sg/6513f9942c8bd900127b82d4) |
+| 1 Nov, 2023 (Wed), 10 AM | Singalong with Jean | Walk-in |
 | Nov 2, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
 | Nov 3, 2023 (Fri), 7.30 PM - 9 PM | Balloon Sculpting Workshop | Walk-in |
 | Nov 4, 2023 (Sat), 10 AM - 11.30 AM | Music, Arts, Philanthropy, and Community Service | Walk-in or [pre-register](https://share.hsforms.com/17nf3QTfhREy96Bx20fNmAAd9t3s) |
