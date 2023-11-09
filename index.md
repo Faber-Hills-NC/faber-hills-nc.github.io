@@ -35,16 +35,13 @@ From October to December 2023, the Faber Hills Neighbourhood Committee has curat
 | Nov 15, 2023 (Wed), 8 AM - 9 AM | Keep Fit Marilyn | Walk-in |
 | Nov 15, 2023 (Wed), 9.30 AM - 11.30 AM | Balik Kampung Module 1: Hey Friends! | Walk-in or pre-register in Healthy 365 app with HPB code (Q5757)  |
 | Nov 16, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
-| Nov 17, 2023 (Fri), 10 AM – 11 AM | Singalong with Jean | Walk-in |
-| Nov 17, 2023 (Fri), 7.30 PM - 9 PM | Balloon Sculpting Workshop | Walk-in |
-| Nov 18, 2023 (Sat), 9.30 AM - 11.30 AM | LEGO Robotic Genius | TBC |
+| Nov 17, 2023 (Fri), 10 AM – 11 AM | Singalong with Jean | Walk-in | 
 | Nov 22, 2023 (Wed), 8 AM - 9 AM | Keep Fit Marilyn | Walk-in |
 | Nov 22, 2023 (Wed), 9.30 AM - 11.30 AM | Balik Kampung Module 2: Keep My Brain Active | Walk-in or pre-register in Healthy 365 app with HPB code (F5535) |
 | Nov 22, 2023 (Wed), 8 PM to 9 PM | Traditional Chinese Medicine 讲座题目“中医如何提升我们的免疫系统“  | Walk-in |
 | Nov 23, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
 | Nov 24, 2023 (Fri), 10 AM – 11AM | Singalong with Jean | Walk-in |
 | Nov 24, 2023 (Fri), 7.30 PM - 9 PM | Balloon Sculpting Workshop | Walk-in |
-| Nov 25, 2023 (Sat), 9 AM - 11 AM | PassionArts - Mixed Media Canvas Art | TBC |
 | Nov 28, 2023 (Tue), 9.30 AM - 11.30 AM | SDO Digital workshop (Workshop 4 - WhatsApp) | Walk in or [pre-register](https://form.gov.sg/6513f9942c8bd900127b82d4) |
 | Nov 29, 2023 (Wed), 8 AM - 9 AM | Keep Fit Marilyn | Walk-in |
 | Nov 29, 2023 (Wed), 9.30 AM - 11.30 AM | Balik Kampung Module 3: I Feel Good | Walk-in or pre-register in Healthy 365 app with HPB code (E5811) |
@@ -55,12 +52,10 @@ From October to December 2023, the Faber Hills Neighbourhood Committee has curat
 | Dec 6, 2023 (Wed), 8 AM - 9 AM | Keep Fit Marilyn | Walk-in |
 | Dec 6, 2023 (Wed), 9.30 AM - 11.30 AM | Balik Kampung Module 4: I can do this | Walk-in or pre-register in Healthy 365 app with HPB code (I4715) |
 | Dec 7, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
-| Dec 8, 2023 (Fri), 7.30 PM - 9 PM | Balloon Sculpting Workshop | Walk-in |
 | Dec 12, 2023 (Tue), 10 AM - 11.30 AM | SDO Digital workshop (Workshop 5 - E-Payment) | Walk in or [pre-register](https://form.gov.sg/6513f9942c8bd900127b82d4) |
 | Dec 13, 2023 (Wed), 8 AM - 9 AM | Keep Fit Marilyn | Walk-in |
 | Dec 13, 2023 (Wed), 9.30 AM - 11.30 AM | Balik Kampung Module 5: How am I feeling today | Walk-in or pre-register in Healthy 365 app with HPB code (D7714) |
 | Dec 14, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
-| Dec 15, 2023 (Fri), 7.30 PM - 9 PM | Balloon Sculpting Workshop | Walk-in |
 | Dec 20, 2023 (Wed), 8 AM - 9 AM | Keep Fit Marilyn | Walk-in |
 | Dec 20, 2023 (Wed), 9.30 AM - 11.30 AM | Senior Health Curriculum - A4 Let's be strong together | Walk-in or pre-register in Healthy 365 app with HPB code 7 days before activity date.  |
 | Dec 21, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
@@ -69,7 +64,7 @@ From October to December 2023, the Faber Hills Neighbourhood Committee has curat
 | Dec 27, 2023 (Wed), 9.30 AM - 11.30 AM | Senior Health Curriculum - A5 FRIENDS! Together we keep a healthy mind | Walk-in or pre-register in Healthy 365 app with HPB code 7 days before activity date.  |
 | Dec 28, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
 | Dec 29, 2023 (Fri), 10AM – 11AM | Singalong with Jean | Walk-in |
-| Dec 29, 2023 (Fri), 7.30 PM - 9 PM | Balloon Sculpting Workshop | Walk-in |
+
 
 
 To get updated to the upcoming Faber Hills NC activities, please join our [Telegram Group](https://t.me/+hV5_Km8F86UwZDQ1) and like our [Facebook Account](https://www.facebook.com/FaberHillsFriends).
