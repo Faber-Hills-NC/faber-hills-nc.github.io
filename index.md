@@ -27,7 +27,6 @@ From October to December 2023, the Faber Hills Neighbourhood Committee has curat
 | Nov 8, 2023 (Wed), 9.30 AM - 11.30 AM | Balik Kampung Module 1.5: Stay Connected | Walk-in or pre-register in Healthy 365 app with HPB code (u1660) |
 | Nov 9, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
 | Nov 10, 2023 (Fri), 10 AM - 11 AM | Singalong with Jean | Walk-in |
-| Nov 10, 2023 (Fri), 7.30 PM - 9 PM | Balloon Sculpting Workshop | Walk-in |
 | Nov 11, 2023 (Sat), 3 PM - 5 PM | Learn to play Ukulele | Walk-in | 
 | Nov 13, 2023 (Mon), 3 PM - 4 PM | Rubix Cube Beginner Class | Walk-in (Bring your own 3X3 rubix cube.) |
 | Nov 13, 2023 (Mon), 4 PM - 5.30 PM | Gaming together - Board Games, Chess etc. | Walk-in | 
