@@ -58,6 +58,7 @@ From October to December 2023, the Faber Hills Neighbourhood Committee has curat
 | Dec 20, 2023 (Wed), 8 AM - 9 AM | Keep Fit Marilyn | Walk-in |
 | Dec 20, 2023 (Wed), 9.30 AM - 11.30 AM | Senior Health Curriculum - A4 Let's be strong together | Walk-in or pre-register in Healthy 365 app with HPB code 7 days before activity date.  |
 | Dec 21, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
+| Dec 22, 2023 (Fri), 10AM – 11AM | Singalong with Jean | Walk-in |
 | Dec 27, 2023 (Wed), 8 AM - 9 AM | Keep Fit Marilyn | Walk-in |
 | Dec 27, 2023 (Wed), 9.30 AM - 11.30 AM | Senior Health Curriculum - A5 FRIENDS! Together we keep a healthy mind | Walk-in or pre-register in Healthy 365 app with HPB code 7 days before activity date.  |
 | Dec 28, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
