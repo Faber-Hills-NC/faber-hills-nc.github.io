@@ -55,12 +55,14 @@ From October to December 2023, the Faber Hills Neighbourhood Committee has curat
 | Dec 13, 2023 (Wed), 8 AM - 9 AM | Keep Fit Marilyn | Walk-in |
 | Dec 13, 2023 (Wed), 9.30 AM - 11.30 AM | Balik Kampung Module 5: How am I feeling today | Walk-in or pre-register in Healthy 365 app with HPB code (D7714) |
 | Dec 14, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
+| Dec 16, 2023 (Sat), 6 PM - 9 PM | Christmas Carolling | [Pre-register](https://form.gov.sg/654109b89aad2c0011953b2d) |
 | Dec 20, 2023 (Wed), 8 AM - 9 AM | Keep Fit Marilyn | Walk-in |
 | Dec 20, 2023 (Wed), 9.30 AM - 11.30 AM | Senior Health Curriculum - A4 Let's be strong together | Walk-in or pre-register in Healthy 365 app with HPB code 7 days before activity date.  |
 | Dec 21, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
 | Dec 22, 2023 (Fri), 10AM – 11AM | Singalong with Jean | Walk-in |
 | Dec 27, 2023 (Wed), 8 AM - 9 AM | Keep Fit Marilyn | Walk-in |
 | Dec 27, 2023 (Wed), 9.30 AM - 11.30 AM | Senior Health Curriculum - A5 FRIENDS! Together we keep a healthy mind | Walk-in or pre-register in Healthy 365 app with HPB code 7 days before activity date.  |
+| Dec 27, 2023 (Wed), 8 PM | Traditional Chinese Medicine (TCM) talk on managing  hypertension, high cholesterol and hyperglycaemia in our body "中医對三高症的調理" | Walk-in |
 | Dec 28, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
 | Dec 29, 2023 (Fri), 10AM – 11AM | Singalong with Jean | Walk-in |
 | Dec 29, 2023 (Fri), 7.30 PM - 9 PM | Balloon Sculpting Workshop | Walk-in |
