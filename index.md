@@ -65,7 +65,7 @@ From October to December 2023, the Faber Hills Neighbourhood Committee has curat
 | Dec 27, 2023 (Wed), 8 PM | Traditional Chinese Medicine (TCM) talk on managing  hypertension, high cholesterol and hyperglycaemia in our body "中医對三高症的調理" | Walk-in |
 | Dec 28, 2023 (Thu), 9 AM | Rummy-O | Walk-in |
 | Dec 29, 2023 (Fri), 10AM – 11AM | Singalong with Jean | Walk-in |
-| Dec 29, 2023 (Fri), 7.30 PM - 9 PM | Balloon Sculpting Workshop | Walk-in |
+| Dec 29, 2023 (Fri), 7.30 PM - 9 PM | Year-end party (Free style) - Potluck, Bring your own utensils; Create your party  | Walk-in |
 
 
 To get updated to the upcoming Faber Hills NC activities, please join our [Telegram Group](https://t.me/+hV5_Km8F86UwZDQ1) and like our [Facebook Account](https://www.facebook.com/FaberHillsFriends).
